@@ -1,2 +1,2 @@
 # cozycove.life
-Navigating the border between chaos and calm
+Empowering you to heal yourself.
